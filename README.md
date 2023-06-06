@@ -1,2 +1,3 @@
 # aslicok
 latianncousera
+yakali gabisa 
